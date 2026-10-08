@@ -1,6 +1,3 @@
-🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
-[Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
-
 # ChuiXueCloud 吹雪云机场官方地址(2026年10月7日更新)
 ChuiXueCloud 吹雪云机场官网地址</br>
 官方地址：[吹雪云.com]([[https://to.iix.im/cx01](https://xn--9kqs1lo79d.com/#/register?code=RLkQqmaT)](https://xn--9kqs1lo79d.com/#/register?code=RLkQqmaT))</br>
