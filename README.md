@@ -1,4 +1,4 @@
-# ChuiXueCloud 吹雪云机场官方地址(2026年10月7日更新)
+# ChuiXueCloud 吹雪云机场官方地址
 ChuiXueCloud 吹雪云机场官网地址</br>
 官方地址：[吹雪云.com](https://吹雪云.com/#/register?code=RLkQqmaT)</br>
 ## 邀请码
